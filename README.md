@@ -2,7 +2,7 @@
 - 👀 I’m interested in poetry!
 - 🌱 I’m currently learning a lot!
 - 💞️ I’m looking to collaborate on nothing!
-- 📫 How to reach me: Aadya Gaming#9289 on discord, server: https://www.discord.gg/XSTEDsP
+- 📫 How to reach me: @aadya_desbhakt on discord, server: https://www.discord.gg/XSTEDsP
 
 <!---
 AadyaGaming/AadyaGaming is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
